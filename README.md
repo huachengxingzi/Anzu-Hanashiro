@@ -15,3 +15,4 @@ https://www.wenku8.net/book/3027.htm
 花城杏子ai聊天分享，chub地址，https://chub.ai/characters/huacheng0616/hua-cheng-xing-zi-071b3a96ba57
 花城杏子ai聊天可导入tavo的png文件
 <img width="941" height="1672" alt="Tavo_花城杏子_1rabd" src="https://github.com/user-attachments/assets/ab7dae96-05f2-46c7-a765-aa74e3eeb40e" />
+《通往夏天的隧道，再见的出口》电影分享  https://m.agedm.io/#/play/20220534/1/1
