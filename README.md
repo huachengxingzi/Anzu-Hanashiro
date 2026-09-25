@@ -11,6 +11,8 @@ https://littleskin.cn/skinlib/show/844806
 https://dl.wenku8.com/down.php?type=txt&node=1&id=3027
 轻小说文库中《通往夏天的隧道，再见的出口》的观看页面
 https://www.wenku8.net/book/3027.htm
+z-library链接，可以自行前往下载《通往夏天的隧道，再见的出口》
+https://z-library.sk/
 
 花城杏子ai聊天分享，chub地址，https://chub.ai/characters/huacheng0616/hua-cheng-xing-zi-071b3a96ba57
 花城杏子ai聊天可导入tavo的png文件
